@@ -1,1 +1,0 @@
-# ningratpl.github.io
